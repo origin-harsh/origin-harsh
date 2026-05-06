@@ -106,8 +106,8 @@
 ---
 
 ## 🌐 Connect With Me
-- 💼 LinkedIn: https://linkedin.com/in/harshitsingh  
-- 📧 Email: rjharshthakur1103@gmail.com  
+- 💼 LinkedIn: https://linkedin.com/in/harshitsingh ](https://www.linkedin.com/in/harshit-singh-126656277/
+- 📧 Email: erharshitsingh2324@gmail.com  
 
 ---
 
